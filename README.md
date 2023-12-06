@@ -4,7 +4,7 @@
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/3I2KkX13lHXuYqfBjSOopo?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-*About the Artist*
+*✩₊˚.About the Artist*✩‧₊*
 ---
 ![alt text](https://lzd-img-global.slatic.net/g/p/0da31f5c0cb74ffc2fd490e6a4aa8746.jpg_720x720q80.jpg)
 
