@@ -17,3 +17,23 @@ After graduating from Purchase College's Conservatory of Music, where she studie
 The lead single of the album, "First Love / Late Spring", was released on May 15, 2014, with Double Double Whammy announcing Mitski joined their label roster and will release a full-length record later that year. The album was announced on September 16 alongside the release of the second single, "Townie". Two music videos were released for "Townie", the first directed by Allyssa Yohana and premiered on Rookie on November 9, 2014,[14] and the second directed by Faye Orlove and premiered on The Fader on March 9, 2015. She released two more singles, "I Don't Smoke" on September 29 and "I Will" on October 21.
 
 The album was reissued with four new bonus tracks on April 7, 2015, through Don Giovanni Records.In 2016, the album was released under Mitski's new label Dead Oceans.
+
+*Track Listings*
+---
+
+|No. Title | Length |
+| ----------- | ----------- |
+| 1.	"Texas Reznikoff" | 2:12 |
+|2.	"Townie" | 3:25 |
+|3.	"First Love / Late Spring" | 4:38 |
+|4.	"Francis Forever" |	2:29 |
+|5.	"I Don't Smoke" | 3:18 |
+|6.	"Jobless Monday" | 2:06 |
+|7.	"Drunk Walk Home" | 2:35 |
+|8.	"I Will" | 2:54 |
+|9.	"Carry Me Out" | 3:53 |
+|10.	"Last Words of a Shooting Star" |	2:44 |
+|Total length:|	30:14 |
+All tracks are written by Mitski
+
+
