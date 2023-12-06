@@ -2,6 +2,8 @@
 ## *私と彼女の一番好きなアルバム*
 ### ***bury me at makeout creek album***
 
+***Album Cover***
+
 ![alt text](https://mitski.com/cdn/shop/products/MITSKI_BURYMEATMAKEOUTCREEK_COVER.jpg?v=1642794164&width=1024)
 
 *About the Artist*
