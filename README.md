@@ -1,6 +1,6 @@
 # **✩₊˚.Mitski⋆☾⋆⁺₊✧**
 ## *私の一番好きなインディーズ音楽アーティスト*
-### *bury me at makeout creek*
+### *bury me at makeout creek album*
 
 
 *About the Artist*
