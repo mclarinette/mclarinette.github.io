@@ -33,7 +33,11 @@ The album was reissued with four new bonus tracks on April 7, 2015, through Don 
 |8.	"I Will" | 2:54 |
 |9.	"Carry Me Out" | 3:53 |
 |10.	"Last Words of a Shooting Star" |	2:44 |
-|Total length:|	30:14 |
+|**Total length**:|	**30:14** |
+
 All tracks are written by Mitski
+
+*Youtube link to the album:* [bury me at makeout creek album YT video](https://youtu.be/rbsj2Q979Tc?feature=shared)
+*Spotify link to album:* [bury me at makeout creek Spotify Playlist](https://open.spotify.com/album/3I2KkX13lHXuYqfBjSOopo?si=0Wqzt3w9TEK8Fq9jyDH0AA)
 
 
