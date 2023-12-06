@@ -1,5 +1,5 @@
 # ***✩₊˚.Mitski⋆☾⋆⁺₊✧***
-## *私と彼女の一番好きなアルバム*
+## *‧₊˚✩‧˚༺私と彼女の一番好きなアルバム༻*ੈ✩‧₊˚*
 ### ***bury me at makeout creek album***
 
 ***Album Cover***
@@ -39,10 +39,12 @@ The album was reissued with four new bonus tracks on April 7, 2015, through Don 
 
 All tracks are written by Mitski
 
-***Links to Album***
+***Where you can listen to this Album***
 
-*Youtube link to the album:* [bury me at makeout creek album YT video](https://youtu.be/rbsj2Q979Tc?feature=shared)
 
-*Spotify link to album:* [bury me at makeout creek Spotify Playlist](https://open.spotify.com/album/3I2KkX13lHXuYqfBjSOopo?si=0Wqzt3w9TEK8Fq9jyDH0AA)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rbsj2Q979Tc?si=qNY5DTEWHHKWtpJy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/3I2KkX13lHXuYqfBjSOopo?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
